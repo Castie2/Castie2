@@ -1,4 +1,4 @@
-- 👋 Hi, I'm Elizabeth
+👋 Hi, I'm Elizabeth
 
 
 
